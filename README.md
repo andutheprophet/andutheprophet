@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @andutheprophet
+- 👀 I’m interested in crypto and NFTs
+- 🌱 I’m currently learning graphic design
+- 💞️ I’m looking to collaborate on NFTs and crypto projects
+- 📫 How to reach me @tokionaut - instagram
